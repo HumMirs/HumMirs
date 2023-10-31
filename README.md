@@ -4,4 +4,4 @@
 
 🌱 Exploring the endless possibilities of the web, one line of code at a time.
 
-🔗 Connect with me on LinkedIn: linkedin.com/in/humay-mirsiyabova-2057bb298
+🔗 Connect with me on LinkedIn: https://www.linkedin.com/in/humay-mirsiyabova/
